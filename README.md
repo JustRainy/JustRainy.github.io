@@ -1,2 +1,2 @@
 # JustRainy.github.io
-My blog
+啥也没有，看着玩。。
